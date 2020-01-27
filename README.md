@@ -1,1 +1,1 @@
-# mac-chechkov.github.io
+# max-chechkov.github.io
